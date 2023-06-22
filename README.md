@@ -1,8 +1,16 @@
-### welcome to my profile 💙
+### welcome to my profile 💚
 
 meu nome é Rihana
 
 - estou fazendo curso no alura
 
+- eu gosto de assistir sobrenatural
+
+-  eu jogo beach tenis
+
 ### você pode entrar em contato comigo através do meu email 📫
-![](https://tenor.com/pt-BR/view/but-why-tho-huh-whatt-me-gif-12565054)
+
+   @santos.rihana@escola.pr.gov.br
+
+
+
