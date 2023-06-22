@@ -2,8 +2,7 @@
 
 meu nome é Rihana
 
-* estou faxendo curso no alura
+- estou fazendo curso no alura
 
-* 
-
-![](https://tenor.com/pt-BR/view/cats-love-gif-24600012)
+### você pode entrar em contato comigo através do meu email 📫
+![](https://tenor.com/pt-BR/view/but-why-tho-huh-whatt-me-gif-12565054)
